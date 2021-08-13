@@ -1,5 +1,5 @@
 # spring--2021
-private notebook
+### private notebook
 <hr>
 <p>I try to be louder and more vocal. It feels weird. Like exercise after years without it&nbsp; Thank itch. Made this account for some jam and it was like "link your twitter" and i was like what twitter and twitter was like here's one you made when you were at school and&nbsp; someone showed you how to ping addresses for their ip and use that to bypass the school firewall? And i was like well this place is loud. And then i was like, oh that's the idea. And then i was like super put off by the fae-as-fuqq off-with-their-head insert-slideshow-of-every-angry-person-youve-seen-in-your-life side of it. And then i left. And then i was like okay i feel a little better. And then i tried not being so loud and the algorithm was nicer to me and showed me less blood and more people making things. There's a median for me somewhere, but holy spit should navigating this shit be a whole semester and media test and licence issuance for 12-year-olds.</p>
 <p>I don't have much in breath life going on. Last year i made 9k, but the stimulus checks helped me support some games and back some kickstarters and order some zines and replace my dead laptop. Felt good. This year i'm seeing digital coin as a rock and a hard place to stick us to change welfare so that it works as we intend.</p>
